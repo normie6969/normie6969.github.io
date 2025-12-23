@@ -1,2 +1,2 @@
 # normie6969.github.io
-Kya haal hai
+Kya karega source code dekhke bezzati hi krega 💀😭 
